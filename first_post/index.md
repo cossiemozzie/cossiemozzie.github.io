@@ -35,20 +35,6 @@ Just like you
 Come on, scream for me, screamer
 I'm a rock believer like you
 Just like you
-Scream, scream, scream (I'm a rock believer)
-Scream, scream, scream (I'm a rock believer)
-No one can take our dreams away
-No one can take our dreams away
-Scream for me, screamer
-I'm a rock believer like you
-Just like you
-Come on, scream for me, screamer
-I'm a rock believer like you
-Just like you
-Scream, scream, scream (I'm a rock believer)
-Scream, scream, scream (I'm a rock believer)
-Scream, scream, scream (I'm a rock believer)
-Scream, scream, scream
 
 #rockbeliever
 
